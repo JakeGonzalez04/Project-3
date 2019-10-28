@@ -15,4 +15,26 @@ When I said that the plot is plot is over the top it is **over the top**. To boi
 
 # The Killer Sound Track
 
-Persona's sound tract is iconic, all of the playlist could be found in many peoples playlist. 
+Persona's sound tract is iconic. Persona 5's sountract has many songs thast are able to stay in your brain such as:
+
+* Rivers In A Desert
+* Life Will Change 
+* Last Surprise
+* Wake Up GEt Out There
+* Beneath The Mask
+
+As Nathan Rodrigues says
+
+> "The vocals on point, most Persona's 5 songs slap"
+
+In my opinion I would rank the soundtracts as:
+
+1. Persona 5
+1. Persona 3
+1. Persona 4
+1. Persona 2
+1. Persona 1
+
+# Game PLay
+
+Persona has always been a turn-based game. After all this years Atlus has almost perfected the combat. With baton passes which led youre ally hit an enemy after a down or critical, they also have an all-out attack which is activated after all the enemies are downed. Persona also had a deep system where you are able to create Persona's to your own liking. 
