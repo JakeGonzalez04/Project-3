@@ -15,4 +15,4 @@ When I said that the plot is plot is over the top it is **over the top**. To boi
 
 # The Killer Sound Track
 
-Persona's sound tract 
+Persona's sound tract is iconic, all of the playlist could be found in many peoples playlist. 
